@@ -1,0 +1,3 @@
+Wibu bisa dijelaskan istilah untuk mengejek orang orang yang terlalu obsesi terhadap budaya jepang khususnya dalam hal *pop culture*. Dalam istilah aslinya lahir dari forum *4chan* dengan nama *Weaboo* lalu kemudian diadaptasi disini (Indonesia) menjadi label untuk orang yang suka *pop culture* jepang.  
+
+Berbeda dengan *Otaku* dimana istilah *Otaku* melekat kepada obsesi terhadap hobi tertentu tidak terbatas sekitar *pop culture* terutama *Anime,Manga,dan Game*. Sehingga ada kemungkinan kamu jadi Wibu tetapi tidak bisa dianggap sebagai Otaku.
